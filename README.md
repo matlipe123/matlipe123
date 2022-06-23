@@ -2,8 +2,8 @@
 🗿 ♊ ⛏
 
 <b>@matheusgabriel8844</b>
-♿ ♊ 🌙
+♿ ♊ 🌙 namorado da manu👫
 
 <b>maringa 044</b> 
 
-<img src="https://images7.memedroid.com/images/UPLOADED740/6003d0a4e5486.jpeg">
+<img src="https://reporterbetoribeiro.com.br/wp-content/uploads/2018/01/whatsapp.jpg">
