@@ -6,4 +6,4 @@
 
 <b>maringa 044</b> 
 
-<img src="https://pt.memedroid.com/memes/tag/rap">
+<img src="https://images7.memedroid.com/images/UPLOADED740/6003d0a4e5486.jpeg">
