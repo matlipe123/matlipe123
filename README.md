@@ -1,5 +1,5 @@
 <b>@bolezina_felipe</b>
-🗿 ♊ ⛏
+🗿 ♊ ⛏ namorado da maysa
 
 <b>@matheusgabriel8844</b>
 ♿ ♊ 🌙 namorado da manu👫
